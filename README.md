@@ -1,0 +1,1 @@
+# Declining-Surface-Solar-Radiation-Resources-in-Polar-Regions-under-Global-Warming
